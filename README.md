@@ -1,1 +1,1 @@
-# bas-t-tabanl-internet-site
+yapamayanlar için bıyık man#5480
